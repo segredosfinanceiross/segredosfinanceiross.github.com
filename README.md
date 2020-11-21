@@ -1,1 +1,0 @@
-# segredosfinanceiross.github.com
